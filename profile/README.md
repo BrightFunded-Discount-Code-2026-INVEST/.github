@@ -1,4 +1,4 @@
-Looking for a smarter way to trade and save? **BrightFunded** is a prop trading firm offering funded trading accounts, structured evaluation challenges, and opportunities for traders to scale their capital through disciplined performance. You can now get an **exclusive 20% OFF discount** by using the **coupon code: INVEST** when you register or purchase a challenge.
+Looking for a smarter way to trade and save? **BrightFunded** is a prop trading firm offering funded trading accounts, structured evaluation challenges, and opportunities for traders to scale their capital through disciplined performance. You can now get an **exclusive 30% OFF discount** by using the **coupon code: INVEST** when you register or purchase a challenge.
 
 💎 **Why Choose BrightFunded?**
 BrightFunded is known for its fast funding process, trader-focused programs, and flexible account options designed to help traders succeed at every stage of their journey.
@@ -7,7 +7,7 @@ BrightFunded is known for its fast funding process, trader-focused programs, and
 
 ⚡ **Fast Evaluation Process:** Complete challenges and qualify for funded accounts efficiently.
 
-💰 **Save on Costs:** Enjoy **20% OFF** using **coupon code INVEST**.
+💰 **Save on Costs:** Enjoy **30% OFF** using **coupon code INVEST**.
 
 📈 **Scaling Opportunities:** Grow your funded account as you achieve consistent performance.
 
@@ -24,13 +24,16 @@ Claiming your discount on BrightFunded is simple:
 2. Create or log into your account
 3. Choose your preferred trading challenge
 4. Enter the **coupon code: INVEST** at checkout
-5. Instantly receive **20% OFF** your challenge fee
+5. Instantly receive **30% OFF** your challenge fee
 
-🚀 **Exclusive INVEST Offer**
-This BrightFunded **coupon code (INVEST)** is perfect for traders looking to reduce costs while accessing professional funded trading opportunities.
+🚀 **Exclusive Limited-Time INVEST Offer**
+
+* **Coupon code INVEST gives 30% OFF from July 2 – July 6.**
+* **This is a limited-time promotion.**
+* **After July 6, the discount returns to 15% OFF.**
 
 🌟 **Start Trading Smarter with BrightFunded**
-Use **coupon code INVEST** today to get **20% OFF** and begin your journey toward funded trading with a trusted prop firm.
+Use **coupon code INVEST** today to get **30% OFF** and begin your journey toward funded trading with a trusted prop firm.
 
 👉 Get started with BrightFunded today
-**Use Coupon Code: INVEST to Save 20% Instantly!**
+**Use Coupon Code: INVEST to Save 30% Instantly!**
